@@ -1,2 +1,0 @@
-# Ed-Ez
-temp
